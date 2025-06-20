@@ -32,7 +32,7 @@
 ## 📲 Contact Us
 
 📞 Phone: **01904300117**  
-📧 Email: **creassmartofficial@gmail.com**  
+📧 Email: **creassmart@gmail.com**  
 📷 Facebook: [facebook.com/creassmart](https://facebook.com/creassmart)  
 📺 YouTube: [@creassmart](https://youtube.com/@creassmart)  
 
